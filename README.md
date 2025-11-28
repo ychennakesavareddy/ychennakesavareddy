@@ -8,7 +8,7 @@
 
 📫 How to reach me: 
 - [LinkedIn](https://www.linkedin.com/in/ychennakesavareddy)
-- Email: yenuguchenna6una66@gmail.com
+- Email: chenna.yenugu.tech@zohomail.in
 - Twitter: [@chenna332003](https://twitter.com/chenna332003)
 
 😄 Pronouns: he/him
