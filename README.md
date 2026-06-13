@@ -71,7 +71,7 @@ Hugging Face: https://huggingface.co/yenugu
 
 Twitter: https://twitter.com/chenna332003
 
-Email: chenna.yenugu.tech@zohomail.in
+Email: chenna.dev@chennareddy.in
 
 😄 Pronouns
 
