@@ -63,7 +63,7 @@ Open-source Python tools
 
 📫 Reach Me At
 
-Portfolio: https://chennayenugu.ccbp.tech/
+Portfolio: https://chennareddy.in/
 
 LinkedIn: https://www.linkedin.com/in/ychennakesavareddy/
 
